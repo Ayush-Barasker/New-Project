@@ -1,2 +1,2 @@
-# New-Project
+# NEW PROJECT
 Description will be added soon...

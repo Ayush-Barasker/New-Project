@@ -1,2 +1,2 @@
-# NEW PROJECT
+# NEW PROJECT SOON
 Description will be added soon...
